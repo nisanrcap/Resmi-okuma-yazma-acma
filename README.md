@@ -1,0 +1,1 @@
+# Resmi-okuma-yazma-acma
